@@ -1,1 +1,1 @@
-# analyse-de-la-mortalit-infanto-juvenil-en-Mauritanie
+# analyse-de-la-mortalité-infanto-juvenil-en-Mauritanie
